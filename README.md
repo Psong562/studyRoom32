@@ -1,1 +1,1 @@
-# studyRoom32
+# lofiStudyRoom
